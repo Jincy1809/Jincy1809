@@ -11,3 +11,8 @@
 - How to reach me: Contact me here
   
 - Fun fact: Human teeth are the only part of the body that can't heal themselves!
+
+
+Email: jincy.perutty@gmail.com
+LinkedIn: 
+HyperionDev Portfolio: 
