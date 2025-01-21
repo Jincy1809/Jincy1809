@@ -6,9 +6,3 @@
   
 • 💞️ I’m looking to collaborate on projects working as entry-level Data Scientist/ Data Analyst/ Data Engineer
   
-• 📫 You can reach me on:
-
-
-Email: jincy.perutty@gmail.com
-
-LinkedIn: www.linkedin.com/in/jincy-perutty-ba14a9237
